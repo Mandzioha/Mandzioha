@@ -1,5 +1,5 @@
 ### Hi there 👋
-![](https://github.com/Mandzioha/Mandzioha/blob/main/club-penguin.gif)
+![](https://github.com/Mandzioha/Mandzioha/blob/main/gaspard-auge-justice.gif)
 <!--
 **Mandzioha/Mandzioha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
